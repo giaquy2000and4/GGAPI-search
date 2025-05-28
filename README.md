@@ -1,4 +1,4 @@
-Of course! Here’s the English version of your project description for GitHub:
+
 
 ---
 
